@@ -227,7 +227,7 @@ First Me of course
 * [@Nevermore](<https://discord.com/users/765330970366574612>)
 
 - 5th
-* [@Clax](www.tiktok.com/@clax7x)
+* [@Clax](<https://discord.com/users/1253197772299964447>)
 
 - 6th
 * [@__x2](<https://discord.com/users/452584891717124099>)
